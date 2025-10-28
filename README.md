@@ -91,6 +91,6 @@ Explore **fiber optic video transmission systems** engineered for **defense, gov
 
 ---
 
-[Explore Fiber Video Solutions](https://www.versitron.com/collections/fiber-optic-video-products)
+[Explore Fiber Video Solutions](https://www.versitron.com/collections/8-channel-video-to-fiber-installation-kits)
 
 ---
